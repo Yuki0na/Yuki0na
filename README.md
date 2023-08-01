@@ -1,4 +1,4 @@
-- 🌷 Hi, I’m @Yuki0na, Yuki/Monika!
+- 🌷 Yuki/Monika!
 - ☂️ They/Them Pronouns Collectively
 - 🌱 DID, Autistic ADHD
 - 🎀 PT: Do not Copy Skins
