@@ -1,4 +1,8 @@
     🌷 Yuki/Monika!
+    PT INFO × 
+    🌙 = Active/INT
+    ⛔ = AFK/DNIUF/In Class
+==== SYSTEM INFO =====
 - × They/Them Pronouns Collectively
 - × DID, Autistic ADHD
 - × PT: Do not Copy Skins
