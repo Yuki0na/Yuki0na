@@ -1,4 +1,4 @@
-    🌷 Yuki/Monika!
+    🌷 Ai!
     PT INFO × 
     🌙 = Active/INT
     ⛔ = AFK/DNIUF/In Class
